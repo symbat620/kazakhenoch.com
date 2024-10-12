@@ -1,0 +1,2 @@
+# kazakhenoch.com
+Kazakh enoch
